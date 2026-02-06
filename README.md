@@ -1,3 +1,6 @@
+please do not purposely steal and redistribute this,
+by just using this makes my day.
+
 
 ===================================================
  ______     ______     __         __     __  __    
